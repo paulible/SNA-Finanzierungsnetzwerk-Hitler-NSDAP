@@ -1,0 +1,1 @@
+# SNA-Finanzierungsnetzwerk-Hitler-NSDAP
